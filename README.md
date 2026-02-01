@@ -1,5 +1,5 @@
 
-<img width="902" height="508" alt="image" src="https://github.com/user-attachments/assets/4dbf5ba0-6efe-4eda-bb6f-c36ae1116817" />
+<img width="1199" height="666" alt="image" src="https://github.com/user-attachments/assets/8d8cabfc-b3a3-4800-9b2f-8180e47bd0e8" />
 
 
-OKYYAYYA im GETTING SOMEWHERE
+ Atabook *ੈ✩‧₊˚ Carrd *ੈ✩‧₊˚ Strawpage *ੈ✩‧₊˚ Pronoun page
